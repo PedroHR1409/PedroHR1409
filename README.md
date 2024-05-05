@@ -1,4 +1,4 @@
-# Olá, seja bem-vindo(a)! Meu nome é Pedro 😊
+# Olá, seja bem-vindo(a)! Meu nome é Pedro
 
 🚀 Profissional com +2 anos de experiência com dados
 
